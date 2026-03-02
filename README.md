@@ -6,5 +6,5 @@ feel free to C+H ! since im usually off-tab most of the time ( AHEM playing vide
 <p>
 <img width="1000" height="700" alt="Untitled5_20260122221816" src="https://64.media.tumblr.com/4ab08389650d31476de1656e382a872d/e4eccd3b03350099-64/s2048x3072/d8bde73a8813189654996f53a4b8866b39f92ae4.pnj"/>
 <p align="center">
-<img width="1000" height="750" alt="2026_03_02_096_Kleki" src="https://github.com/user-attachments/assets/fe706b65-e134-42fd-b0cb-2bbfe68dba31" />
+<img width="800" height="650" alt="2026_03_02_096_Kleki" src="https://github.com/user-attachments/assets/fe706b65-e134-42fd-b0cb-2bbfe68dba31" />
 <p
