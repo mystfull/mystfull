@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=f1e0d3)
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=d0ad93)
 
 $${\color{#f1e0d2} " Together" }$$
 <p align="center">
