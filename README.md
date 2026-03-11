@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=d0ad93)
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=999999)
 
 rethmeme WIP
 
