@@ -1,9 +1,8 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=c00000&label=˚⟡˖ )
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=grey&label=˚⟡˖ )
 
 <p align="center">
-<img width="350" height="300" alt="ezgif-4c6f36e2c06865e7" src="https://github.com/user-attachments/assets/b9459b75-534c-4b0f-9517-1dae62aa20f9" />
+<img width="230" height="200" alt="ezgif-4c6f36e2c06865e7" src="https://static.wikia.nocookie.net/xenophanes/images/f/f2/Alan_Hide%26Seek.gif/revision/latest?cb=20250803220138" />
 </p>
-
 <p align="center">
  Reiden / Ryan or Alan !!!
  </p>
