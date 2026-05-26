@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=b3b3b3&label=˚⟡˖ )
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=ffd0d8&label=˚⟡˖ )
 W.I.P
 
 <p align="center">
