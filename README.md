@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=509189&label=˚⟡˖ )
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=000000&label=˚⟡˖ )
 <p align="center">
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/40295937-d274-4340-ae62-034da591aaa8" />
-</p>
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/5c788bfa-ae7f-4d26-a99d-29a28d58a2a9" />
+
 <p align="center">
 
 <p align="center">
