@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=000000&label=˚⟡˖ )
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=7cb3e3&label=˚⟡˖ )
 <p align="center">
  <img width="300" height="190" alt="meow" src="https://64.media.tumblr.com/32e48c755cc12c2cb896b08c9aef7968/c1d5a2fca78f08c4-0b/s100x200/8dab14e880dab0f066f5fff7cc3ffa775b423663.gifv" />
 
