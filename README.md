@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=2b2b2b&label=˚⟡˖ )  ough.. wip
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=6e3535&label=˚⟡˖ ) 
 <p align="center">
 <img width="700" height="490" alt="ezgif-7fac21e3a50e7401" src="https://github.com/user-attachments/assets/79c70e7f-f0fc-447c-bdf8-312aff7d4b61" />
 
