@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=f31212&label=˚⟡˖ ) supa wip..
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=f1f1f1&label=˚⟡˖ ) supa wip..
 <p align="center">
 
 <p align="center">
