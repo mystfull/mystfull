@@ -1,5 +1,6 @@
-![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=f1f1f1&label=˚⟡˖ ) supa wip..
+![](https://komarev.com/ghpvc/?username=inkflavouredsoda&color=000000&label=˚⟡˖ ) supa wip..
 <p align="center">
+<img width="1200" height="618" alt="2026_09_28_0el_Kleki" src="https://github.com/user-attachments/assets/bba54ddc-cecb-4706-b9fd-f61c771f1cb6" />
 
 <p align="center">
 
